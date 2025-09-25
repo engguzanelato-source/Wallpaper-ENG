@@ -1,1 +1,1 @@
-https://wallpapers.com/images/hd/surreal-4k-pc-clouds-7kk9qb45xrj672gu.jpg
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/2b687193-33fa-4c19-8f64-fbf5906d00bc" />
